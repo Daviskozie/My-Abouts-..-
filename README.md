@@ -1,7 +1,7 @@
 ..  ๋ ࣭ ° 𝘏𝘪 .' .' :3 
 
 
-𝘏𝘪 𝘣𝘧𝘧's ! @H4zelEyes , @Trickzterr
+𝘏𝘪 𝘣𝘧𝘧's ! @H4zelEyes , @Trickzterrr
 
 𝘏𝘪 𝘖𝘰𝘮𝘧's ! @pastrycaked
 
