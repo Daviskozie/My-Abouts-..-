@@ -1,9 +1,5 @@
-..  ๋ ࣭ ° 𝘏𝘪 .' .' :3 
+![Watch These Mind-Blowing Cat Tricks and Be Amazed!](https://github.com/user-attachments/assets/a7add59b-bbdb-41c5-8efe-c663d542a840)
 
-Names davisko, or you can call me david blah blah blah,
-
-
-♡【 𝘍𝘙𝘌𝘌 𝘊+𝘏 𝘈𝘕𝘠 .' 】 + 【 𝘐𝘕𝘛 .' 】^_^
 
 
 
